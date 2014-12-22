@@ -35,682 +35,715 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A guide to goe to God: or, An explanation of the perfect patterne of prayer, the Lords prayer. By Wi
+
+1. TO THE RIGHT
+HONOVRABLE, RIGHT
+Worſhipfull, and other my much
+reſpected Pariſhioners, Inhabitants in Blacke-Friers
+London, All needfull Proſperitie in
+this world, and eternall Felicitie in
+the World to come
+OVR Father which art
+in Heauen, Hallowed
+be thy Name. Thy
+Kingdome come. Thy
+will be done in earth
+a
+1. A Table of the ſeuerall and diſtinct points
+handled in this Explanation of the perfect Patterne
+of Prayer, as in order they follow one another.
+
 #####Body#####
+§. 1. Of the Excellencie of the Lords Prayer.THoſe two things which are of greateſt
+weight to commen
+    _ §. 1. Of the Excellencie of the Lords Prayer.
 
-1. §. 1. Of the Excellencie of the Lords Prayer.
+    _ §. 2. Of the ſeuerall branches of the Lords Prayer.
 
-1. §. 2. Of the ſeuerall branches of the Lords Prayer.
+    _ §. Of preparation to Prayer.
 
-1. §. Of preparation to Prayer.
+    _ §. 4. Of the meanes to prepare vs to Prayer.
 
-1. §. 4. Of the meanes to prepare vs to Prayer.
+    _ §. 5. Of Praying to God alone.
 
-1. §. 5. Of Praying to God alone.
-
-1. §. 6. Of Gods godneſſe and greatneſſe iointly
+    _ §. 6. Of Gods godneſſe and greatneſſe iointly
 conſidered together.
 
-1. §. 7. Of this title Father applyed to God.
+    _ §. 7. Of this title Father applyed to God.
 
-1. §. 8. Of the inſtructions which the title, Father,
+    _ §. 8. Of the inſtructions which the title, Father,
 applied to God import.
 
-1. §. 9. Of the prerogatiue of Gods children to ſpeake
+    _ §. 9. Of the prerogatiue of Gods children to ſpeake
 vnto him face to face.
 
-1. §. 10. Of their dutie who haue free acceſſe to God.
+    _ §. 10. Of their dutie who haue free acceſſe to God.
 
-1. §. 11. Of the parties compriſed vnder this
+    _ §. 11. Of the parties compriſed vnder this
 particle OVR.
 
-1. §. 12. Of applying Gods Fatherhood to our ſelues.
+    _ §. 12. Of applying Gods Fatherhood to our ſelues.
 
-1. §. 13. Of Gods impartiall reſpect to all his children: and
+    _ §. 13. Of Gods impartiall reſpect to all his children: and
 ſufficiencie of bleſsing for all.
 
-1. §. 14. Of their mutuall duties which ſay
+    _ §. 14. Of their mutuall duties which ſay
 OVR FATHER.
 
-1. §. 15. Of the Saints participation of one
+    _ §. 15. Of the Saints participation of one
 anothers Prayers.
 
-1. §. 16. Of Gods being in heauen.
+    _ §. 16. Of Gods being in heauen.
 
-1. §. 17. Of the direction which Gods being in heauen giueth
+    _ §. 17. Of the direction which Gods being in heauen giueth
 vs for the manner of praying.
 
-1. §. 18. Of the direction which Gods being in heauen
+    _ §. 18. Of the direction which Gods being in heauen
 giueth vs for the matter of Prayer.
 
-1. §. 19. Of the manner of handling euerie Petition.
+    _ §. 19. Of the manner of handling euerie Petition.
 
-1. §. 20. Of the name of God, and the things compriſed
+    _ §. 20. Of the name of God, and the things compriſed
 vnder it.
 
-1. §. 21. Of Gods making knowne himſelfe.
+    _ §. 21. Of Gods making knowne himſelfe.
 
-1. §. 22. Of Hallowing.
+    _ §. 22. Of Hallowing.
 
-1. §. 23. Of the creatures hallowing the Creator.
+    _ §. 23. Of the creatures hallowing the Creator.
 
-1. §. 24. Of the excellencie of Holineſſe.
+    _ §. 24. Of the excellencie of Holineſſe.
 
-1. §. 25. Of the extent of mans deſire to haue Gods
+    _ §. 25. Of the extent of mans deſire to haue Gods
 name hallowed.
 
-1. §. 26. Of mans diſabilitie to hallow Gods Name.
+    _ §. 26. Of mans diſabilitie to hallow Gods Name.
 
-1. §. 27. Of the force of this word THY in the
+    _ §. 27. Of the force of this word THY in the
 firſt Petition.
 
-1. §. 28. Of mans honouring God, becauſe God
+    _ §. 28. Of mans honouring God, becauſe God
 honoureth him.
 
-1. §. 29. Of Saints honouring God, becauſe they
+    _ §. 29. Of Saints honouring God, becauſe they
 are ſonnes.
 
-1. §. 30. Of preferring Gods honour before all
+    _ §. 30. Of preferring Gods honour before all
 other things.
 
-1. §. 31. Of aiming at Gods honour in all things.
+    _ §. 31. Of aiming at Gods honour in all things.
 
-1. §. 31. Of the particulars to be prayed for vnder
+    _ §. 31. Of the particulars to be prayed for vnder
 the firſt Petition.
 
-1. §. 32. Of the particulars for which thankes is to be
+    _ §. 32. Of the particulars for which thankes is to be
 giuen vnder the firſt Petition.
 
-1. §. 33. Of the duties required by reaſon of the
+    _ §. 33. Of the duties required by reaſon of the
 firſt Petition.
 
-1. §. 34. Of the things to be bewailed in regard of
+    _ §. 34. Of the things to be bewailed in regard of
 the firſt Petition.
 
-1. §. 35. Of Gods kingdome: what it is, and what
+    _ §. 35. Of Gods kingdome: what it is, and what
 be the kinds of it.
 
-1. §. 36. Of Gods raigning ouer rebels.
+    _ §. 36. Of Gods raigning ouer rebels.
 
-1. §. 37. Of the kingdome of Grace and Glorie.
+    _ §. 37. Of the kingdome of Grace and Glorie.
 
-1. §. 38. Of the difference betwixt the kingdome of ••Grace. Glorie.
+    _ §. 38. Of the difference betwixt the kingdome of ••Grace. Glorie.
 
-1. §. 39. Of the Churches Gouernment.
+    _ §. 39. Of the Churches Gouernment.
 
-1. §. 40. Of the encreaſe of the Church.
+    _ §. 40. Of the encreaſe of the Church.
 
-1. §. 41. Of the Churches imperfection.
+    _ §. 41. Of the Churches imperfection.
 
-1. §. 42. Of mans inabilitie to come vnto God.
+    _ §. 42. Of mans inabilitie to come vnto God.
 
-1. § 43. Of the force of this word THY in the
+    _ § 43. Of the force of this word THY in the
 ſecond Petition.
 
-1. §. 44. Of Gods power to make his Kingdome come.
+    _ §. 44. Of Gods power to make his Kingdome come.
 
-1. §. 45. Of the beſt meanes, and fitteſt perſons to
+    _ §. 45. Of the beſt meanes, and fitteſt perſons to
 hallow Gods Name.
 
-1. §. 46. Of the ſpirituall bleſsings to be craued for the
+    _ §. 46. Of the ſpirituall bleſsings to be craued for the
 whole militant Church.
 
-1. §. 47. Of praying for the outward temporall
+    _ §. 47. Of praying for the outward temporall
 eſtate of the Church.
 
-1. §. 48. Of the extent of our Prayer for the good of
+    _ §. 48. Of the extent of our Prayer for the good of
 the Church after our time.
 
-1. §. 49. Of praying againſt euills which annoy
+    _ §. 49. Of praying againſt euills which annoy
 the Church.
 
-1. §. 50. Of the things to be craued for particular Churches
+    _ §. 50. Of the things to be craued for particular Churches
 which we know.
 
-1. §. 51. Of praying for the Churches whereof in particular
+    _ §. 51. Of praying for the Churches whereof in particular
 we are members.
 
-1. §. 52. Of the things to bee deſired for the
+    _ §. 52. Of the things to bee deſired for the
 Church triumphant.
 
-1. §. 53. Of the things for which thankes is to be giuen
+    _ §. 53. Of the things for which thankes is to be giuen
 by reaſon of the ſecond Petition.
 
-1. §. 54. Of the duties required vnder the
+    _ §. 54. Of the duties required vnder the
 ſecond Petition.
 
-1. §. 55. Of the things to be bewailed vnder
+    _ §. 55. Of the things to be bewailed vnder
 the ſecond Petition.
 
-1. §. 56. Of the will of God here meant, and doing it.
+    _ §. 56. Of the will of God here meant, and doing it.
 
-1. §. 57. Of the extent of our deſire to haue
+    _ §. 57. Of the extent of our deſire to haue
 Gods will done.
 
-1. §. 58. Of the rule of our obedience, Gods will.
+    _ §. 58. Of the rule of our obedience, Gods will.
 
-1. §. 59. Of practiſing Gods will.
+    _ §. 59. Of practiſing Gods will.
 
-1. §. 60. Of mans diſabilitie to doe Gods will.
+    _ §. 60. Of mans diſabilitie to doe Gods will.
 
-1. §. 61. Of the force of this word THY in the
+    _ §. 61. Of the force of this word THY in the
 third Petition.
 
-1. §. 62. Of preferring Gods will before all others.
+    _ §. 62. Of preferring Gods will before all others.
 
-1. §. 63. Of praying onely for men in earth.
+    _ §. 63. Of praying onely for men in earth.
 
-1. §. 64. Of the meaning of this phraſe
+    _ §. 64. Of the meaning of this phraſe
 in heauen.The inhabitants of the higheſt heauens, not the hoſts of the middle heauen are here meant.
 
-1. §. 65. Of the manner of following a
+    _ §. 65. Of the manner of following a
 perfect patterne.
 
-1. §. 66. Of the matter of Patience which the inhabitants
+    _ §. 66. Of the matter of Patience which the inhabitants
 of heauen haue.
 
-1. §. 67. Of well doing good.
+    _ §. 67. Of well doing good.
 
-1. §. 68. Of propounding a perfect patterne
+    _ §. 68. Of propounding a perfect patterne
 before vs.
 
-1. §. 69. Of aiming at more then we
+    _ §. 69. Of aiming at more then we
 can attaine to.
 
-1. §. 70. Of the order of the third Petition.
+    _ §. 70. Of the order of the third Petition.
 
-1. §. 71. Of the honour done to God by doing
+    _ §. 71. Of the honour done to God by doing
 his will.
 
-1. §. 72. Of ſhewing our ſelues to be Gods ſubiects
+    _ §. 72. Of ſhewing our ſelues to be Gods ſubiects
 by doing his will.
 
-1. §. 73. Of the particulars which we are taught to pray
+    _ §. 73. Of the particulars which we are taught to pray
 for in the third Petition.
 
-1. §. 74. Of the things to be prayed for in the direction
+    _ §. 74. Of the things to be prayed for in the direction
 of the third Petition.
 
-1. §. 75. Of the diſtinct heads of the manner of doing
+    _ §. 75. Of the diſtinct heads of the manner of doing
 Gods will in heauen.
 
-1. §. 76. Of the things for which thankes is to be giuen
+    _ §. 76. Of the things for which thankes is to be giuen
 in the third Petition, and in the direction
 annexed to it.
 
-1. §. 77. Of the duties to be obſerued; by reaſon of
+    _ §. 77. Of the duties to be obſerued; by reaſon of
 the third Petition.
 
-1. §. 78. Of ſinnes againſt Gods will reuealed by
+    _ §. 78. Of ſinnes againſt Gods will reuealed by
 his word.
 
-1. §. 79. Of ſinnes againſt Gods will manifeſted
+    _ §. 79. Of ſinnes againſt Gods will manifeſted
 by euents.
 
-1. §. 80. Of ſinnes againſt the manner of
+    _ §. 80. Of ſinnes againſt the manner of
 doing good.
 
-1. §. 81. Of the meaning of this word BREAD.
+1. THE FOVRTH
+PETITION.
 
-1. §. 82. Of the Arguments alleadged for Spirituall
+    _ §. 81. Of the meaning of this word BREAD.
+
+    _ §. 82. Of the Arguments alleadged for Spirituall
 Food to be meant by Bread, anſwered.
 
-1. §. 83. Of praying for temporall bleſsings.
+    _ §. 83. Of praying for temporall bleſsings.
 
-1. §. 84. Of mens right to the things of this world.
+    _ §. 84. Of mens right to the things of this world.
 
-1. §. 85. Of ſundry leſſons ariſing from this
+    _ §. 85. Of ſundry leſſons ariſing from this
 particle Ours.
 
-1. §. 86. Of the meaning of this word DAILY.
+    _ §. 86. Of the meaning of this word DAILY.
 
-1. §. 87. Of deſiring no more then is needfull.
+    _ §. 87. Of deſiring no more then is needfull.
 
-1. §. 88. Of Couetouſneſſe, Ambition, and
+    _ §. 88. Of Couetouſneſſe, Ambition, and
 Voluptuouſneſſe.
 
-1. §. 89. Of Gods giuing temporall bleſsings. That
+    _ §. 89. Of Gods giuing temporall bleſsings. That
 he giueth them. How he giueth them.
 
-1. §. 90. Of the inſtructions taught vs by asking
+    _ §. 90. Of the inſtructions taught vs by asking
 bread of God.
 
-1. §. 91. Of Gods free-giuing the things
+    _ §. 91. Of Gods free-giuing the things
 of this world.
 
-1. §. 92. Of praying both for our ſelues and
+    _ §. 92. Of praying both for our ſelues and
 for others.
 
-1. §. 93. Of praying for others outward well-fare
+    _ §. 93. Of praying for others outward well-fare
 
-1. §. 94. Of reſting contented with our
+    _ §. 94. Of reſting contented with our
 preſent eſtate.
 
-1. §. 95.Cui vila iam decrat, victus abundantiam cogitabat. Cypr. de Orat. Dom. §. 14. Lege Aug. de Temp. Serm. 126 Of ſeeking the things which concerne our owne good
+    _ §. 95.Cui vila iam decrat, victus abundantiam cogitabat. Cypr. de Orat. Dom. §. 14. Lege Aug. de Temp. Serm. 126 Of ſeeking the things which concerne our owne good
 as well as the glorie of God.
 
-1. §. 96. Of the principall end of this life.
+    _ §. 96. Of the principall end of this life.
 
-1. §. 97. Of placing the Petition for temporrll bleſsings
+    _ §. 97. Of placing the Petition for temporrll bleſsings
 before thoſe for ſpirituall.
 
-1. §. 98. Of riſing from temporall to ſpirituall
+    _ §. 98. Of riſing from temporall to ſpirituall
 bleſsings.
 
-1. §. 99. Of ſundrie particulars compriſed vnder the
+    _ §. 99. Of ſundrie particulars compriſed vnder the
 generall words of the fourth Petition.
 
-1. §. 100. Of the extent of our prayers for the temporall
+    _ §. 100. Of the extent of our prayers for the temporall
 good of others.
 
-1. §. 101. Of the things for which by vertue of
+    _ §. 101. Of the things for which by vertue of
 the fourth Petition we ought to
 giue thankes.
 
-1. §. 102. Of the duties required by vertue of the
+    _ §. 102. Of the duties required by vertue of the
 fourth Petition.
 
-1. §. 103. Of the ſinnes whereof the fourth Petition
+    _ §. 103. Of the ſinnes whereof the fourth Petition
 ſheweth men to be guilty.
 
-1. §. 114. Of neglecting the welfare of others.
+    _ §. 114. Of neglecting the welfare of others.
 
-1. §. 104. Of ſundry branches of improuidence.
+    _ §. 104. Of ſundry branches of improuidence.
 
-1. §. 105. Of carking too much for this world.
+    _ §. 105. Of carking too much for this world.
 
-1. §. 106. Of ſinnes ſtiled debts, and of the kinds of
+1. THE FIFTH
+PETITION.
+
+    _ §. 106. Of ſinnes ſtiled debts, and of the kinds of
 thoſe debts.
 
-1. §. 107. Of Chriſts actiue righteouſneſſe
+    _ §. 107. Of Chriſts actiue righteouſneſſe
 imputed to vs.
 
-1. §. 108. Of mans subiection to ſinne.
+    _ §. 108. Of mans subiection to ſinne.
 
-1. §. 109. Of falling into ſinne daily.
+    _ §. 109. Of falling into ſinne daily.
 
-1. §. 110. Of the difference betwixt Gods abſolution,
+    _ §. 110. Of the difference betwixt Gods abſolution,
 and mans apprehenſion thereof.
 
-1. §. 111. Of Popiſh indulgences for ſinnes to come,
+    _ §. 111. Of Popiſh indulgences for ſinnes to come,
 and Shriuing in Lent.
 
-1. §. 112. Of neglecting to ſeeke diſcharge of ſinne
+    _ §. 112. Of neglecting to ſeeke diſcharge of ſinne
 till Eaſter: or till a day of viſitation,
 or death
 
-1. §. 113. Of the wofulneſſe of the debt of ſinne.
+    _ §. 113. Of the wofulneſſe of the debt of ſinne.
 
-1. §. 114. Of euery ſinne being mortall, yet
+    _ §. 114. Of euery ſinne being mortall, yet
 not equall.
 
-1. §. 115. Of the diſtinction of Veniall and
+    _ §. 115. Of the diſtinction of Veniall and
 mortall ſinnes.
 
-1. §.1. Learne to know ſinne. 116. Of duties to be obſerued becauſe euerie
+    _ §.1. Learne to know ſinne. 116. Of duties to be obſerued becauſe euerie
 ſinne is mortall.
 
-1. §. 117. Of the many debts wherein we ſtand bound
+    _ §. 117. Of the many debts wherein we ſtand bound
 to Gods iuſtice.
 
-1. §. 118. Of the appropriation of ſinne to
+    _ §. 118. Of the appropriation of ſinne to
 our ſelues.
 
-1. §. 119. Of Gods free and full diſcharge
+    _ §. 119. Of Gods free and full diſcharge
 of mans debt.
 
-1. §. 120. Of the concurrence of Gods mercie and iuſtice
+    _ §. 120. Of the concurrence of Gods mercie and iuſtice
 in the diſcharge of mans debt.
 
-1. §. 121. Of mans diſabilitie to diſcharge
+    _ §. 121. Of mans diſabilitie to diſcharge
 his debt.
 
-1. §. 122. Of Popiſh Satisfaction.
+    _ §. 122. Of Popiſh Satisfaction.
 
-1. §. 123. Of humiliation and abnegation.
+    _ §. 123. Of humiliation and abnegation.
 
-1. §. 124. Of the remiſſibleneſſe of ſinne.
+    _ §. 124. Of the remiſſibleneſſe of ſinne.
 
-1. §. 125. Of Gods Prerogatiue in forgiuing ſinne.
+    _ §. 125. Of Gods Prerogatiue in forgiuing ſinne.
 
-1. §. 126. Of Papiſts blaſphemie in giuing to men
+    _ §. 126. Of Papiſts blaſphemie in giuing to men
 power to forgiue ſinnes.
 
-1. §. 127. Of confeſſion of ſinne to God and Man.
+    _ §. 127. Of confeſſion of ſinne to God and Man.
 
-1. §. 128. Of confeſſing ſinne to God, and ſeeking
+    _ §. 128. Of confeſſing ſinne to God, and ſeeking
 pardon of him.
 
-1. §. 129. Of going to God for Pardon.
+    _ §. 129. Of going to God for Pardon.
 
-1. §. 130. Of Gods free and full diſcharge
+    _ §. 130. Of Gods free and full diſcharge
 of ſinne.
 
-1. §. 131. Of Merit of Congruitie.
+    _ §. 131. Of Merit of Congruitie.
 
-1. §. 132. Of Popiſh ſatisfactions for
+    _ §. 132. Of Popiſh ſatisfactions for
 ſinnes remitted.
 
-1. §. 133. Of the comfort that ariſeth from Gods free
+    _ §. 133. Of the comfort that ariſeth from Gods free
 and full diſcharge.
 
-1. §. 134. Of praying for the pardon of our owne
+    _ §. 134. Of praying for the pardon of our owne
 ſinnes eſpecially.
 
-1. §. 135. Of praying for pardon of others ſinnes.
+    _ §. 135. Of praying for pardon of others ſinnes.
 
-1. §. 136. Of mans forgiuing another.
+    _ §. 136. Of mans forgiuing another.
 
-1. §. 137. Of ſpeedy forgiueneſſe.
+    _ §. 137. Of ſpeedy forgiueneſſe.
 
-1. §. 138. Of conſtant forgiuing.
+    _ §. 138. Of conſtant forgiuing.
 
-1. §. 139. Of dealing with man, as we deſire God
+    _ §. 139. Of dealing with man, as we deſire God
 ſhould deale with vs.
 
-1. §. 140. Of the ſeuerall kinds of debts whereby we
+    _ §. 140. Of the ſeuerall kinds of debts whereby we
 become debters to man.
 
-1. §. 141. Of making ſatisfaction for wrongs
+    _ §. 141. Of making ſatisfaction for wrongs
 done to man.
 
-1. §. 142. Of departing from our right.
+    _ §. 142. Of departing from our right.
 
-1. §. 143. Of forgiuing all ſorts of
+    _ §. 143. Of forgiuing all ſorts of
 Debters.
 
-1. §. 144. Of forgiuing our owne Debters.
+    _ §. 144. Of forgiuing our owne Debters.
 
-1. §. 145. Of the force of this Particle As in the
+    _ §. 145. Of the force of this Particle As in the
 condition annexed to the fift Petition.
 
-1. §. 146. Of true and vnfained forgiuing one another.
+    _ §. 146. Of true and vnfained forgiuing one another.
 
-1. §. 147. Of forgiuing one another freely.
+    _ §. 147. Of forgiuing one another freely.
 
-1. §. 148. Of a full forgiuing one another.
+    _ §. 148. Of a full forgiuing one another.
 
-1. §. 149. Of requiring proper Debts.
+    _ §. 149. Of requiring proper Debts.
 
-1. §. 150. Of going to Law.
+    _ §. 150. Of going to Law.
 
-1. §. 151. Of Magiſtrates puniſhing wrong.
+    _ §. 151. Of Magiſtrates puniſhing wrong.
 
-1. §. 152. Of imitating God in forgiuing
+    _ §. 152. Of imitating God in forgiuing
 wrongs.
 
-1. §. 153. Of praying without reuenge: and of
+    _ §. 153. Of praying without reuenge: and of
 praying for reuenge.
 
-1. §. 154. Of the aſſurance which our forgiuing
+    _ §. 154. Of the aſſurance which our forgiuing
 giueth of Gods forgiuing vs.
 
-1. §. 155. Of the reuenge which reuengefull perſons
+    _ §. 155. Of the reuenge which reuengefull perſons
 bring vpon themſelues.
 
-1. §. 156. Of deprecation againſt euill.
+    _ §. 156. Of deprecation againſt euill.
 
-1. §. 157. Of taking care for our ſpirituall
+    _ §. 157. Of taking care for our ſpirituall
 welfare.
 
-1. §. 158. Of doubling our care for the good of
+    _ §. 158. Of doubling our care for the good of
 our ſoules.
 
-1. §. 159. Of the bleſſings which Pardon of ſinne
+    _ §. 159. Of the bleſſings which Pardon of ſinne
 bringeth.
 
-1. §. 160. Of the precedence of Iuſtification
+    _ §. 160. Of the precedence of Iuſtification
 before Sanctification.
 
-1. §. 161. Of graces to be prayed for in regard of
+    _ §. 161. Of graces to be prayed for in regard of
 the pardon of our owne ſinnes.
 
-1. §. 162. Of graces to be prayed for in regard
+    _ §. 162. Of graces to be prayed for in regard
 of the pardon of others ſinnes.
 
-1. §. 163. Of the graces which are to be prayed for by
+    _ §. 163. Of the graces which are to be prayed for by
 reaſon of the condition annexed to the
 Fift Petition.
 
-1. §. 164. Of the things for which thankes is to be
+    _ §. 164. Of the things for which thankes is to be
 giuen by vertue of the Fift Petition.
 
-1. §. 165. Of the things for which thankes is to be
+    _ §. 165. Of the things for which thankes is to be
 giuen by vertue of the condition annexed
 to the Fift Petition.
 
-1. §. 166. Of Duties required in regard of deſire
+    _ §. 166. Of Duties required in regard of deſire
 of pardon of our owne and others ſinnes.
 
-1. §. 267. Of Duties required by reaſon of our
+    _ §. 267. Of Duties required by reaſon of our
 Profeſſion to forgiue others.
 
-1. §. 168. Of that matter of Humiliation which the
+    _ §. 168. Of that matter of Humiliation which the
 fifth Petition affordeth.
 
-1. §. 169. Of the Summe and ſeuerall parts of the
+1. THE SIXTH
+PETITION.
+
+    _ §. 169. Of the Summe and ſeuerall parts of the
 ſixth Petition.
 
-1. §. 170. Of Temptation, and Tempters.
+    _ §. 170. Of Temptation, and Tempters.
 
-1. §. 171. Of the kinde of temptation here meant.
+    _ §. 171. Of the kinde of temptation here meant.
 
-1. §. 172. Of mans ſubi•ction to temptation.
+    _ §. 172. Of mans ſubi•ction to temptation.
 
-1. §. 173. Of leading into.
+    _ §. 173. Of leading into.
 
-1. §. 174. Of being in the power of temptation.
+    _ §. 174. Of being in the power of temptation.
 
-1. §. 175. Of Gods leading into temptation.
+    _ §. 175. Of Gods leading into temptation.
 
-1. §. 176. Of freeing God from being Author
+    _ §. 176. Of freeing God from being Author
 of ſinne.
 
-1. §. 177. Of mans diſabilitie to reſiſt temptation.
+    _ §. 177. Of mans diſabilitie to reſiſt temptation.
 
-1. §. 178. Of Gods ouer-ruling power in
+    _ §. 178. Of Gods ouer-ruling power in
 Temptations.
 
-1. §. 179. Of the reſtraint of the power of
+    _ §. 179. Of the reſtraint of the power of
 Tempters.
 
-1. §. 180. Of the extent of our deſires for others
+    _ §. 180. Of the extent of our deſires for others
 freedome from Temptation.
 
-1. §. 181. Of that ſubiection wherein Saints are
+    _ §. 181. Of that ſubiection wherein Saints are
 to Temptations.
 
-1. §. 182. Of the freeneſſe of mans will in ſinne.
+    _ §. 182. Of the freeneſſe of mans will in ſinne.
 
-1. §. 183. Of the extent of this word Euill.
+    _ §. 183. Of the extent of this word Euill.
 
-1. §. 184. Of euill the onely thing to be prayed againſt.
+    _ §. 184. Of euill the onely thing to be prayed againſt.
 
-1. §. 185. Of the reſpects wherein Satan is ſtiled
+    _ §. 185. Of the reſpects wherein Satan is ſtiled
 the euill one.
 
-1. §. 186. Of the many wayes of deliuering from Euill.
+    _ §. 186. Of the many wayes of deliuering from Euill.
 
-1. §. 187. Of that hope of recouerie which remaineth
+    _ §. 187. Of that hope of recouerie which remaineth
 to them that fall.
 
-1. §. 188. Of God the onely Deliuerer.
+    _ §. 188. Of God the onely Deliuerer.
 
-1. §. 189. Of Sanctification accompanying
+    _ §. 189. Of Sanctification accompanying
 Iuſtification.
 
-1. §. 190. Of maens proneneſſe to ſinne after
+    _ §. 190. Of maens proneneſſe to ſinne after
 forgiueneſſe.
 
-1. §. 191. Of Mans anſwering Gods Mercy
+    _ §. 191. Of Mans anſwering Gods Mercy
 by dutie.
 
-1. §. 192. Of auoiding temptations.
+    _ §. 192. Of auoiding temptations.
 
-1. §. 193. Of calling on God for all things.
+    _ §. 193. Of calling on God for all things.
 
-1. §. 194. Of the general points for which wee are
+    _ §. 194. Of the general points for which wee are
 taught to pray in the laſt Petition.
 
-1. §. 195. Of the particulars for which we are to pray
+    _ §. 195. Of the particulars for which we are to pray
 by vertue of the firſt part of the laſt
 Petition.
 
-1. §. 196. Of the particulars for which we are to pry
+    _ §. 196. Of the particulars for which we are to pry
 by vertue of the ſecond part of
 the laſt Petition.
 
-1. §. 197. Of the things for which we ought to
+    _ §. 197. Of the things for which we ought to
 giue thankes in the laſt
 Petition.
 
-1. §. 198. Of the particulars for which thankes
+    _ §. 198. Of the particulars for which thankes
 is to bee giuen by virtue of the firſt part of
 the laſt Petition.
 
-1. §. 199. Of the particulars for which thankes
+    _ §. 199. Of the particulars for which thankes
 is to be giuen by virtue of the laſt part
 of the laſt Petition.
 
-1. §. 200. Of duties required in the laſt
+    _ §. 200. Of duties required in the laſt
 Petition.
 
-1. §. 201. Of duties required in the laſt Petition
+    _ §. 201. Of duties required in the laſt Petition
 in regard of others.
 
-1. §. 202. Of the matter of humiliation gathered
+    _ §. 202. Of the matter of humiliation gathered
 out of the laſt Petition.
 
-1. §. 203.
+    _ §. 203.
 Of preſsing Prayer with
 weighty Reaſons.
 
-1. §. 204. Of taking grounds for faith in prayer
+    _ §. 204. Of taking grounds for faith in prayer
 from God himſelfe.
 
-1. §. 205. Of appropriating Gods Attributes
+    _ §. 205. Of appropriating Gods Attributes
 to himſelfe.
 
-1. §. 206. Of Gods hauing all things at
+    _ §. 206. Of Gods hauing all things at
 his command.
 
-1. §. 207. Of the abſolute Supremacie of Gods
+    _ §. 207. Of the abſolute Supremacie of Gods
 Soueraigntie.
 
-1. §. 208. Of god being King onely.
+    _ §. 208. Of god being King onely.
 
-1. §. 209. Of the Duties due to God by reaſon of his
+    _ §. 209. Of the Duties due to God by reaſon of his
 Kingdome, and comfort thence ariſing.
 
-1. §. 210. Of Gods power. What it is. How
+    _ §. 210. Of Gods power. What it is. How
 farre it extendeth.
 
-1. §. 211. Of the difference betwixt Gods abſolute
+    _ §. 211. Of the difference betwixt Gods abſolute
 and actuall power.
 
-1. §. 212. How power is proper to God.
+    _ §. 212. How power is proper to God.
 
-1. §. 213. Of the Duties due to God by
+    _ §. 213. Of the Duties due to God by
 reaſon of his power.
 
-1. §. 214. Of the comfort ariſing from Gods power.
+    _ §. 214. Of the comfort ariſing from Gods power.
 
-1. §. 215. Of Gods glory. What it is.
+    _ §. 215. Of Gods glory. What it is.
 
-1. §. 216. Of the Incomprehenſibleneſſe of Gods
+    _ §. 216. Of the Incomprehenſibleneſſe of Gods
 Glorie.
 
-1. §. 217. Of the meanes of manifeſting Gods
+    _ §. 217. Of the meanes of manifeſting Gods
 Glorie.
 
-1. §. 218. How glory is proper to God.
+    _ §. 218. How glory is proper to God.
 
-1. §. 219. Of Mans giuing glory to God, and taking
+    _ §. 219. Of Mans giuing glory to God, and taking
 glory from God.
 
-1. §. 220. Of the duties due to God by reaſon of
+    _ §. 220. Of the duties due to God by reaſon of
 his Glorie.
 
-1. §. 221. Of the waies whereby others are brought
+    _ §. 221. Of the waies whereby others are brought
 to glorifie God.
 
-1. §. 222. Of thoſe who are to ſet forth Gods
+    _ §. 222. Of thoſe who are to ſet forth Gods
 Glorie.
 
-1. §. 223. Of the chiefest enemies of
+    _ §. 223. Of the chiefest enemies of
 Gods glory.
 
-1. § 224. Of Eternitie. To what things it is applyed.
+    _ § 224. Of Eternitie. To what things it is applyed.
 
-1. § 225. Of the Duties which ariſe from
+    _ § 225. Of the Duties which ariſe from
 Gods Eternitie.
 
-1. §. 226 Of immutabilitie: to what things it
+    _ §. 226 Of immutabilitie: to what things it
 may be applyed.
 
-1. §. 227. Of the difference betwixt the immutabilitie
+    _ §. 227. Of the difference betwixt the immutabilitie
 of the Creator and creatures.
 
-1. §. 228. Of the duties which ariſe from Gods
+    _ §. 228. Of the duties which ariſe from Gods
 immutabilitie.
 
-1. §. 229. Of Gods kingdome. How it worketh confidence
+    _ §. 229. Of Gods kingdome. How it worketh confidence
 in Prayer.
 
-1. §. 230. Of Gods power. How it ſtrengthenth
+    _ §. 230. Of Gods power. How it ſtrengthenth
 faith in Prayer.
 
-1. §. 231. Of Gods glory. How it ſetleth the ſoule
+    _ §. 231. Of Gods glory. How it ſetleth the ſoule
 for obtaining her deſire.
 
-1. §. 232. Of Gods vnchangeable Eternitie. How
+    _ §. 232. Of Gods vnchangeable Eternitie. How
 it maketh vs reſt on God for obtaining
 our deſires.
 
-1. §. 233. Of the ſpeciall relation which the ſeuerall
+    _ §. 233. Of the ſpeciall relation which the ſeuerall
 Petitions haue to the Kingdome
 of God.
 
-1. §. 234. Of the ſpeciall relation which the ſeuerall
+    _ §. 234. Of the ſpeciall relation which the ſeuerall
 Petitions haue to Gods power.
 
-1. §. 235. Of the ſpeciall relation which the ſeuerall
+    _ §. 235. Of the ſpeciall relation which the ſeuerall
 Petitions haue to Gods glorie.
 
-1. §. 236. Of the ſpeciall relation which the ſeuerall
+    _ §. 236. Of the ſpeciall relation which the ſeuerall
 Petitions haue to Gods vnchangeable
 eternitie.
 
-1. §. 237. Of the neceſſary vſe of this clauſe, Thine is
+    _ §. 237. Of the neceſſary vſe of this clauſe, Thine is
 the Kingdome, and the power and
 the glory for euer.
 
-1. §. 238.
+    _ §. 238.
 Of adding Praiſe to
 Petition.
 
-1. §. 239. Of praiſing God. How it is done.
+    _ §. 239. Of praiſing God. How it is done.
 
-1. §. 240. Of the things for which God is to
+    _ §. 240. Of the things for which God is to
 be praiſed.
 
-1. §. 241.
+    _ §. 241.
 Of the meaning and vſe of AMEN
 being prefixed before a Speech.
 
-1. §. 242. Of the vſe of AMEN being added
+    _ §. 242. Of the vſe of AMEN being added
 to a Speech.
 
-1. §. 243. Of the duties which AMEN added
+    _ §. 243. Of the duties which AMEN added
 to a ſpeech implyeth.
 
-1. §. 244. Of the grounds of Faith, whereby we may expect
+    _ §. 244. Of the grounds of Faith, whereby we may expect
 the obtaining of what we pray for.
 
-1. §. 245. Of ſetting AMEN in the laſt place.
+    _ §. 245. Of ſetting AMEN in the laſt place.
 
 #####Back#####
-A guide to goe to God: or, An explanation of the perfect patterne of prayer, the Lords prayer. By Wi
+
+1. AN ALPHABETICALL
+Index of the moſt materiall
+points that are handled in the Explanation
+of the Lords
+Prayer.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
